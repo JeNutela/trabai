@@ -1,2 +1,0 @@
-Loja de Hardware
-
